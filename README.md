@@ -12,4 +12,6 @@ Top 3 Movies are:
 
 In my free time I enjoy learning different coding languages or playing video games
 
+[here](https://open.spotify.com/track/08aSprc2fv1viNls6RmLdN?si=F4SyudTwR9Gsj9H-TkZFCQ)is a favorite song played on repeat.
+
 
